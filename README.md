@@ -19,6 +19,6 @@
 
 **🅛🅘🅝🅚 🅑🅘🅞** 
  ⭐ LINK : **[ℕ𝕘𝕦𝕪𝕖̂̃𝕟 ℕ𝕙𝕦̛ 𝕋𝕙𝕒̀𝕟𝕙](http://nhuthanhdz.bio.link)**
- ℕ𝕖̂́𝕦 𝕔𝕠́ 𝕝𝕠̂̃𝕚 𝕟𝕙𝕦̛ 𝕤𝕒𝕦 :
+ ### ℕ𝕖̂́𝕦 𝕔𝕠́ 𝕥𝕒̂𝕞 𝕥𝕙𝕚̀ 𝕔𝕠́ 𝕥𝕙𝕖̂̉ 𝕕𝕠𝕟𝕒𝕥𝕖 𝕞𝕚̀𝕟𝕙 𝕜𝕠 𝕟𝕘𝕒̣𝕚 𝕟𝕙𝕒̣̂𝕟 đ𝕒̂𝕦 𝕟𝕙𝕒́ :
 <p> &nbsp; <a href="https://i.postimg.cc/Wzcrzy50/z3539324052655-de5845a80c9f6f0f94b3278e86a1821a.jpg"target="_blank" rel="noopener noreferrer"><img src="https://i.postimg.cc/Wzcrzy50/z3539324052655-de5845a80c9f6f0f94b3278e86a1821a.jpg"  width="200" /></a>
 - **-------------------- ⭐𝓝𝓰𝓾𝔂𝓮̂̃𝓷 𝓝𝓱𝓾̛ 𝓣𝓱𝓪̀𝓷𝓱⭐-----------------------**
