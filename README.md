@@ -19,4 +19,6 @@
 
 **🅛🅘🅝🅚 🅑🅘🅞** 
  ⭐ LINK : **[ℕ𝕘𝕦𝕪𝕖̂̃𝕟 ℕ𝕙𝕦̛ 𝕋𝕙𝕒̀𝕟𝕙](http://nhuthanhdz.bio.link)**
+ ℕ𝕖̂́𝕦 𝕔𝕠́ 𝕝𝕠̂̃𝕚 𝕟𝕙𝕦̛ 𝕤𝕒𝕦 :
+<p> &nbsp; <a href="https://user-images.githubusercontent.com/91858708/159887207-f4aa50a4-ee4e-4efc-8d14-8e02650e70c2.png"target="_blank" rel="noopener noreferrer"><img src="https://user-images.githubusercontent.com/91858708/159887207-f4aa50a4-ee4e-4efc-8d14-8e02650e70c2.png"  width="200" /></a>
 - **-------------------- ⭐𝓝𝓰𝓾𝔂𝓮̂̃𝓷 𝓝𝓱𝓾̛ 𝓣𝓱𝓪̀𝓷𝓱⭐-----------------------**
